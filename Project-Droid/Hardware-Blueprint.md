@@ -1,0 +1,6 @@
+# Hardware Blueprint ;
+
+    >_  
+
+
+    
